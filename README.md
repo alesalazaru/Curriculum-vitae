@@ -1,5 +1,13 @@
 # Curriculum Vitae 
-**ALEXANDRA SALAZAR UREÑA** 
+**ALEXANDRA SALAZAR UREÑA**   
 
+
+#### Perfil Profesional  
+
+#### Educación  
+
+#### Experiencia Profesional
+
+#### Referencias  
 
 
